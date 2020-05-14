@@ -8,3 +8,5 @@ Sa voix?
 Le sens de la fête?
 
 Celui qui mange une noix de coco fait confiance à son anus. Comme dirait le grand parrain de tous les temps, la chenille n'a pas besoin de lunette pour boire l'eau. En paralelle et en lien étroit avec la crocodile qui n'attend pas que le gorille accouche.
+
+c'est que j'ai un emploi du temps tres chargé et je voudrais commencer sans plus tarder à travailler avec ce jeune
