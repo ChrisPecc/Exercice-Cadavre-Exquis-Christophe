@@ -13,3 +13,4 @@ Celui qui mange une noix de coco fait confiance à son anus. Comme dirait le gra
 
  Tiens ???? Mais non ca va  aller
 
+c'est que j'ai un emploi du temps tres chargé et je voudrais commencer sans plus tarder à travailler avec ce jeune
